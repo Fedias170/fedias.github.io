@@ -1,7 +1,6 @@
 # Hi, I am Fedias, here is some info about me :3
 
-[car](https://media.tenor.com/O41mdoxmjn4AAAAM/car-garn47-car.gif).
-
+![car](https://tenor.com/en-AU/view/garn47-car-gif-8156747478634404369)
 
 Hi, I am a hobbiest developer and I like developing useless crap in my spare time
 I am always open for a dm to chat. I look forward to meeting you, if not im just glad you checked out my site,
